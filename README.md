@@ -1,1 +1,0 @@
-# tech_eazy-Poojithapamuri-aws_devops
